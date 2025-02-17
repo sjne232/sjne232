@@ -8,4 +8,6 @@ before getting my MBA, and then transistioning back into IT PM. From there I wil
 
 Most of my Github starting on 12/4/2024 will mainly showcase projects related to Data Analytics and my personal website!
 
-Feel free to connect with me on linked in at 
+Feel free to connect with me on linked in at www.linkedin.com/in/stephen-netherton-2268871b4
+
+
